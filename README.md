@@ -1,2 +1,2 @@
-Research Areas: Artificial Intelligence and Signal Processing
-Side job: Fictionist
+Research Areas: Artificial Intelligence and Signal Processing  
+Side job: Metaphysical fictionist
